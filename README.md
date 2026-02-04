@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+I'm a transfer student from Chile 🇨🇱, currently doing a Finance Major in University of Cincinnati.
 <!--
 **jrhidalgob/jrhidalgob** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
